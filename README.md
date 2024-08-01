@@ -2,7 +2,8 @@
 - 👀 I’m interested in Catto
 - 🌱 I’m currently learning how to survive
 - 💞️ I’m looking to collaborate on u
-- 📫 How to reach me 0866401661
+- 📫 How to reach me Phone: 0866401661
+                     Mail: viethai1442003@gmail.com
 
 
 <!---
